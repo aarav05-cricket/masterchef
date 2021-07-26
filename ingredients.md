@@ -1,0 +1,3 @@
+# maggi
+# spice sachet
+# water

@@ -1,0 +1,1 @@
+# heat a bowl of water and add maggi to it , after heating it for two minutes empty the spice sachet into the bowl ,heat it for a few more minutes and its ready to eat.
